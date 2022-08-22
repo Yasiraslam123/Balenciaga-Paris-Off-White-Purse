@@ -1,0 +1,2 @@
+# Balenciaga-Paris-Off-White-Purse
+Balenciaga Paris Off White Purse Cash On Delivery Service available Price: 3600 PKR Balenciaga Paris Off White Purse In Pakistan Brand Name: Balenciaga Paris Stuff: Leather size: Height – 12″ Width – 116″ Strap: Length shoulder strap 105cm-41.5″ #BalenciagaParis #BalenciagaParisOffWhite #BalenciagaParisOffWhitePurseInPakistan Read More details link given below https://plazza.pk/product/balenciaga-paris-off-white-purse/
